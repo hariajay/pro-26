@@ -1,0 +1,1 @@
+red vaelvet cake is a traditionally a red,crimson or scarlet-coloured chocolate layer cake ,layered with ermine icing. Traditional recipies don't use food colouring, with the red colour due to non dutched, anthocyanin-rich cocoa.
